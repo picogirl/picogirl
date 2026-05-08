@@ -3,5 +3,5 @@
 <p align="center">
 ♪ ellie ♡ 22 ♡ she / it ♪
  <p align="center">
-♡ newgrounds, oneyplays/sleepycabin, mlp, & hellsing autist ♡
+♡ newgrounds, oneyplays/sleepycabin, vulpvibe/lapfox/halley labs, mlp, & hellsing autist ♡
 </p>
