@@ -4,4 +4,6 @@
 ♪ ellie ♡ 22 ♡ she / it ♪
  <p align="center">
 ♡ newgrounds, oneyplays/sleepycabin, vulpvibe/lapfox/halley labs, mlp, & hellsing autist ♡
+ <p align="center">
+♡ DAVE, CORY & LYLE ON TOP 4EVER ♡
 </p>
