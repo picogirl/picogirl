@@ -1,5 +1,5 @@
 <p align="center">
- <img src="https://i.postimg.cc/FRnpM7FG/ezgif-50b74b1f955c19f9.gif"/>
+ <img src="https://i.postimg.cc/sDCHsG4R/ezgif-5854bebf4a3a51e4.gif"/>
 <p align="center">
 ♪ ellie ♡ 22 ♡ she / it ♪
  <p align="center">
