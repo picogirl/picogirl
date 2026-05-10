@@ -4,7 +4,7 @@
 <img src="https://i.postimg.cc/sDCHsG4R/ezgif-5854bebf4a3a51e4.gif" align="left" width="500px"/>
 ૮ ⑅ . ֑ . ১ ELLIE / MINA / MAE ꜀(^. . ^꜀ )੭
 <p align="center">
-✫ she/it ୨୧ 22 yrs ୨୧ bi femme genderfae woman
+✫ she/it ୨୧ 22 yrs ୨୧ tme genderfae bi woman + xeno hoarder
 <p align="center">
 ✫ furry/fursuiter, artist, fict/otherkin, therian, selfshipper, fanfic writer
 <p align="center">
