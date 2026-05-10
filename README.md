@@ -20,7 +20,7 @@
 <p align="center">
 ✫ i work full time on weekdays so i'm more active on weekends. i might also go MIA for long periods of time.
 <p align="center">
-✫ hopelessly autistic for oneyplays/sleepycabin, newgrounds, mlp, hellsing & lapfox
+✫ hopelessly autistic for oneyplays/sleepycabin, newgrounds, mlp, hellsing & lapfox ✫
 <br clear="left"/>
  
 <p align="center">
