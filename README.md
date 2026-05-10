@@ -1,21 +1,30 @@
 <p align="center">
- <img src="https://i.postimg.cc/sDCHsG4R/ezgif-5854bebf4a3a51e4.gif"/>
+<img src="https://i.postimg.cc/g2fv1DBF/tumblr-33b6221c8d8d8bfa3a59e909ee334c26-cc562a37-1280.png"/>
 <p align="center">
-♪ ellie ♡ 22 ♡ she / it ♡ bi genderfae woman + xenogender hoarder ♪
- <p align="center">
-furry / fursuiter, occasional artist, fict/otherkin, therian, job haver & grass toucher
+<img src="https://i.postimg.cc/sDCHsG4R/ezgif-5854bebf4a3a51e4.gif" align="left" width="500px"/>
+૮ ⑅ . ֑ . ১ ELLIE / MINA / MAE ꜀(^. . ^꜀ )੭
 <p align="center">
-ex antishipper (happy converted since 2022) & proudly profic + anti-censorship.
+✫ she/it ୨୧ tme bi femme genderfae woman + xenogender hoarder
 <p align="center">
-i work full time every weekday so i am mostly active on the weekends. i can also have long periods of inactivity.
- <p align="center">
-i don't mind small talk or short convos, but i have a social battery in the negatives. i have no interest in being friends with you, im sorry!! we can absolutely chat though ^_^
- <p align="center">
-i will be attending anthrocon this july! if you're going to AC, come talk to me about it!! i also went last year!
+✫ furry/fursuiter, artist, fict/otherkin, therian, selfshipper, fanfic writer
 <p align="center">
- i also play animal jam classic very often!! my username is yoshikonatsu if u wanna add me or whateva
- <p align="center">
-♡ newgrounds, oneyplays/sleepycabin, vulpvibe/lapfox/halley labs, mlp, & hellsing autist ♡
- <p align="center">
-♡ DAVE, CORY & LYLE ON TOP 4EVER ♡
+✫ ex-antishipper, proudly profic + anti-censorship since 2022. unapologetic rpf fan.
+<p align="center">
+✫ very vocal feminist & transfeminist
+<p align="center">
+✫ heavily antisocial with a nonexistent social battery. small talk + convos are fine but we cannot be friends. nothing personal!
+<p align="center">
+✫ i play animal jam classic! my user is yoshikonatsu, feel free to add!
+<p align="center">
+✫ attending anthrocon this july! come talk to me about it! (i also went last year!)
+<p align="center">
+✫ i work full time on weekdays so i'm more active on weekends. i might also go MIA for long periods of time.
+<p align="center">
+✫ hopelessly autistic for oneyplays/sleepycabin, newgrounds, mlp, hellsing & lapfox
+<br clear="left"/>
+ 
+<p align="center">
+<img src="https://i.postimg.cc/RhF6W6bt/ezgif-8c0b44af7259e8.gif"/><img src="https://i.postimg.cc/50pQ9qpd/68747470733a2f2f66696c652e67617264656e2f5a4b3463704361634c47554c37354e6c2f7832332e676966.gif"/><img src="https://i.postimg.cc/4dwH4bwt/deviantart-933586019-FURSUITER-blinkie-F2-U.gif"/><img src="https://i.postimg.cc/tJM1WqLr/tumblr-06dcc0d67980a879015994a8a1defcd6-01d6b39c-250.gif"/><img src="https://i.postimg.cc/NfK2YXHn/tumblr-6181c624aab0509ccd216f1b970808dc-3359b65e-250.gif"/>
+<p align="center">
+<img src="https://i.postimg.cc/8PwGyXcc/tumblr-33b6221c8d8d8bfa3a59e909ee334c26-cc562a37-1280.png"/>
 </p>
