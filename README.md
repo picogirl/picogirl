@@ -1,7 +1,6 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=picogirl&color=ffdeee&style=plastic&label=freaks"</img>
 <p align="center">
-<img src="https://i.postimg.cc/9FQdbnNv/b8020z4.png"/>
-<p align="center">
-<img src="https://i.postimg.cc/6pLBQMtm/glitter-text(3).gif"/>
+i sexualize real life grown men in their 30s because im a cute girl so i can get away with it
 </p>
+newgrounds/oneyplays/sleepycabin rpf freak ✿ colorful horse enthusiast and brony destroyer ✿ i wont read your dni because i do not care
