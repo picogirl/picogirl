@@ -3,4 +3,4 @@
 <p align="center">
 i sexualize real life grown men in their 30s because im a cute girl so i can get away with it
 </p>
-newgrounds/oneyplays/sleepycabin rpf freak ✿ colorful horse enthusiast and brony destroyer ✿ i wont read your dni because i do not care
+newgrounds/oneyplays/sleepycabin rpf freak ✿ colorful horse enthusiast ✿ i wont read your dni because i do not care
