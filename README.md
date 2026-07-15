@@ -12,4 +12,4 @@ i ❤︎ oneyplays/sleepycabin/newgrounds RPF. oneyspaz, oneypebbles, & davecory
 my other interests include my little pony, degrees of lewdity, fashion, nintendo/sega games, & animal jam ꒰ᐢ. .ᐢ꒱₊˚⊹ i also love to write fanfiction, draw, & research niche/obscure internet oddities
 </p>
 <p align="center">
-im a "radical feminist" but i am sex/kink positive, sex worker inclusive, & trans inclusive. i do believe in there being a separation between being a feminist who is radical about their beliefs & a genuinely bigoted radfem. i am simply extremely critical of men, queer or not, & their behavior towards women. respectfully, men dni.
+sex positive, sex worker inclusive, & trans inclusive radfem. if that bothers you respectfully block me. i love women.
